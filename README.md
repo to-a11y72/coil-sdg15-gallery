@@ -1,1 +1,1 @@
-# coil-sdg15-gallery
+# moj kraj Ajdovščina
