@@ -1,1 +1,1 @@
-# moj kraj Ajdovščina
+# moj-kraj-Ajdovscina
